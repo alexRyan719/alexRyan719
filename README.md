@@ -3,6 +3,7 @@
 - 🌱 I’m currently working in IT 
 - 📫 How to reach me: 
 -     LinkedIn == https://www.linkedin.com/in/alex-ryan-58223bb4/
+-     YouTube == https://youtube.com/@a-rye
 
 <!---
 alexRyan719/alexRyan719 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
