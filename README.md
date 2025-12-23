@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @alexRyan719 AKA Alex "aRye" Ryan
+**Alex "aRye" Ryan**
+**AKA Space Jesus | Minister of Mutually Assured Construction**
 
 **The Mission** 
 
@@ -30,7 +31,7 @@ crews, I’m betting on the "Christmas Miracle" of human connection.
 is reality—welcome to mine."
 
 
-
+- 👋 Hi, I’m @alexRyan719 AKA Alex "aRye" Ryan
 - 👀 I’m interested in Global Security, Criminal Justice Reform, Video Games, Snowboarding, Hacky Sack
 - 🌱 I’m currently working in IT and volunteering in Community Management
 - 📫 How to reach me: 
