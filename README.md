@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @alexRyan719 AKA Alex "aRye" Ryan
 
 **The Mission** 
+
 I am a former overhead crane operator and first-aid responder from Buena Vista, Colorado, who realized that if we can
 move massive industrial loads with precision, we can move the needle on world peace with the same logic. I’m here to
 broker the BV Accord: a global transition from destroying what we fear to building what we need.
