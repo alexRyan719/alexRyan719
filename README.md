@@ -7,6 +7,7 @@ move massive industrial loads with precision, we can move the needle on world pe
 broker the BV Accord: a global transition from destroying what we fear to building what we need.
 
 **The Credentials (The "Stone Soup" Chef)**
+
  - Heavy Logistics: Years spent spotting and operating cranes. I understand how to move the "big stuff" when lives are on the line.
 
  - Tactical Humility: A veteran of the "mental breakdown" and "medication mismanagement" wars. I’ve seen the "hot seat," and I’ve
@@ -18,17 +19,19 @@ broker the BV Accord: a global transition from destroying what we fear to buildi
  - The Blueprint: Architect of CommunL and the Voluntrophy system.
 
 **The Philosophy: "Non Prickus Maximus"**
+
 I believe that Respect is the only sustainable currency and that Satire is the only weapon that doesn’t leave a body count. 
 Whether it’s fixing the migrant crisis with President Trump and President Sheinbaum or turning the Cartels into construction 
 crews, I’m betting on the "Christmas Miracle" of human connection.
 
 **aRye Shower Thought**
+
 "I’m the guy the feds monitor because I’m crazy enough to think we can actually stop being pricks to each other. Perspective 
 is reality—welcome to mine."
 
 
 
-- 👀 I’m interested in Computer Science, Cyber Security, Programming, Minecraft, Video Games, Snowboarding.
+- 👀 I’m interested in Global Security, Criminal Justice Reform, Video Games, Snowboarding, Hacky Sack
 - 🌱 I’m currently working in IT and volunteering in Community Management
 - 📫 How to reach me: 
 -     https://www.linkedin.com/in/alex-ryan-58223bb4/
