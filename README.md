@@ -1,8 +1,8 @@
 **Alex "aRye" Ryan**
 
-**AKA Space Jesus | Minister of Mutually Assured Construction**
+Minister of Mutually Assured Construction
 
-**The Mission** 
+<!-- **The Mission** 
 
 I am a former overhead crane operator and first-aid responder from Buena Vista, Colorado, who realized that if we can
 move massive industrial loads with precision, we can move the needle on world peace with the same logic. I’m here to
@@ -29,7 +29,7 @@ crews, I’m betting on the "Christmas Miracle" of human connection.
 **aRye Shower Thought**
 
 "I’m the guy the feds monitor because I’m crazy enough to think we can actually stop being pricks to each other. Perspective 
-is reality—welcome to mine."
+is reality—welcome to mine." -->
 
 
 - 👋 Hi, I’m @alexRyan719 AKA Alex "aRye" Ryan
