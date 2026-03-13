@@ -36,9 +36,10 @@ is reality—welcome to mine." -->
 - 👀 I’m interested in Global Security, Criminal Justice Reform, Video Games, Snowboarding, Hacky Sack
 - 🌱 I’m currently working in IT and volunteering in Community Management
 - 📫 How to reach me: 
--     https://www.linkedin.com/in/alex-ryan-58223bb4/
+
 -     https://youtube.com/@a-rye
 -     https://twitch.tv/aRye719
+-     https://www.linkedin.com/in/alex-ryan-58223bb4/
 
 <!---
 alexRyan719/alexRyan719 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
